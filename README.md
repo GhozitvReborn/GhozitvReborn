@@ -1,4 +1,5 @@
-## Hi there 👋
+SELAMAT DATANG DIGHOZITV.
+AGAR PLAYLIST INI BISA SELALU ON ANDA BISA MEMBANTU SAYA DENGAN BERDONASI VIA DANA : 08975496261
 
 <!--
 **GhozitvReborn/GhozitvReborn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
