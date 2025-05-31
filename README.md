@@ -1,6 +1,6 @@
 SELAMAT DATANG DIGHOZITV.
 AGAR PLAYLIST INI TETAP BISA SELALU ON.
-ANDA BISA MEMBANTU SAYA DENGAN BERDONASI VIA DANA : 08975496261
+ANDA BISA MEMBANTU SAYA DENGAN BERDONASI VIA DANA : 088229686235
 
 <!--
 **GhozitvReborn/GhozitvReborn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
